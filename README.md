@@ -1,2 +1,2 @@
 # Chess
-Fss ai course
+SICK MY BIG DUCK
